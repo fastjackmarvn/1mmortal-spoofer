@@ -9,8 +9,8 @@
 ## Work in g       
 PUBG        
 E     
-Day    
-R6:Si    
+Day     
+R6:Si   
 Unturn   
 A  
 Fortn  
