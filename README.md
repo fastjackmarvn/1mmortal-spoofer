@@ -9,9 +9,9 @@
 ## Work in g
 Battle
 PUBG    
-E          
+E         
 Day  
-R6:Sieg    
+R6:Sieg     
 Unturn    
 Arm
 Fortni
