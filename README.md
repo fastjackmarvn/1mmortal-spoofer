@@ -12,9 +12,8 @@ E
 Da
 R6:Si            
 Unturn   
-
 Fortn   
-Easy Anti-che  
+Easy Anti-che   
 Apex
 Rust
 SCUM
