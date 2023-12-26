@@ -10,8 +10,8 @@
 ## Work in games - 
 BattleEye:
 
-PUBG 
-EF
+PUBG  
+E
 DayZ
 R6:Siege 
 Unturned
