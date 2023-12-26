@@ -8,7 +8,7 @@
    
 ## Work in g      
 Ba 
-PUBG        
+PUBG         
 E      
 Day 
 R6:Si    
@@ -16,7 +16,6 @@ Unturn
 Ar
 Fortn  
 Easy Anti-che
-
 Apex
 Rust
 SCUM
