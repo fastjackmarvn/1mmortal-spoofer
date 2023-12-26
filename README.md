@@ -12,10 +12,10 @@ PUBG
 E      
 Day  
 R6:Sieg    
-Unturn  
+Unturn   
 Arm
 Fortnit
-Easy Anti-cheat:
+Easy Anti-cheat
 
 Apex
 Rust
