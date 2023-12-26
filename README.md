@@ -11,8 +11,8 @@ PUBG
 E    
 Day  
 R6:Si      
-Unturn      
-Ar 
+Unturn       
+Ar
 Fortn 
 Easy Anti-che
 Apex
