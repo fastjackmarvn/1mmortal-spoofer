@@ -10,11 +10,11 @@
 Ba 
 PUBG      
 E        
-Day   
+Day  
 R6:Si    
 Unturn  
 Arm
-Fortn
+Fortn 
 Easy Anti-che
 
 Apex
