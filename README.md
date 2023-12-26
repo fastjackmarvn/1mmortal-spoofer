@@ -10,8 +10,8 @@
 PUBG       
 E 
 Day   
-R6:Si        
-Unturn        
+R6:Si         
+Unturn       
 A
 Fortn  
 Easy Anti-che 
