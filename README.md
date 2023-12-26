@@ -11,11 +11,11 @@ Battl
 PUBG  
 E          
 Day 
-R6:Sieg   
+R6:Sieg    
 Unturn     
 Arm
 Fortni
-Easy Anti-cheat
+Easy Anti-chea
 
 Apex
 Rust
