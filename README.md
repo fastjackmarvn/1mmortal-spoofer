@@ -10,8 +10,8 @@
 Batt
 PUBG  
 E         
-Day
-R6:Sieg    
+Day 
+R6:Sieg   
 Unturn    
 Arm 
 Fortni 
