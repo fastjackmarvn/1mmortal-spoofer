@@ -9,9 +9,9 @@
 ## Work in g       
 PUBG       
 E   
-Day    
+Day   
 R6:Si      
-Unturn    
+Unturn     
 A 
 Fortn  
 Easy Anti-che  
