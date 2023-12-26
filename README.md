@@ -8,11 +8,11 @@
    
 ## Work in g        
 PUBG          
-E    
+E   
 Day  
 R6:Si    
 Unturn     
-A  
+A   
 Fortn 
 Easy Anti-che
 Apex
