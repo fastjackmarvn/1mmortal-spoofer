@@ -10,9 +10,9 @@
 BattleEye:
 PUBG   
 E  
-Day
+Day 
 R6:Siege 
-Unturned
+Unturne
 Arma 3
 Fortnite
 
