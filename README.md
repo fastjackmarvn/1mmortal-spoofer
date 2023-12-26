@@ -9,12 +9,12 @@
 ## Work in g   
 Bat
 PUBG   
-E        
+E       
 Day    
 R6:Sieg  
 Unturn  
 Arm 
-Fortni 
+Fortni  
 Easy Anti-chea
 
 Apex
