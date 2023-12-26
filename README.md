@@ -8,9 +8,9 @@
    
 ## Work in game
 Battle
-PUBG     
+PUBG    
 E       
-Day  
+Day   
 R6:Sieg    
 Unturn   
 Arm
