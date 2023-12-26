@@ -8,12 +8,12 @@
     
 ## Work in g 
 Battle
-PUBG   
+PUBG  
 E          
 Day 
 R6:Sieg  
 Unturn    
-Arm
+Arm 
 Fortni
 Easy Anti-cheat
 
