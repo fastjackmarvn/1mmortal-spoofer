@@ -7,13 +7,13 @@
 ![immortal_322_hM574sNMraQMiMRaGnmZ](https://github. com/ NIcecz/hwid-spoofer/assets/117065400/4422591c-9ecd-40df-89b2-4832d266cbe9)
    
 ## Work in g      
-Ba
+Ba 
 PUBG      
 E        
 Day   
 R6:Si    
 Unturn  
-Arm 
+Arm
 Fortn
 Easy Anti-che
 
