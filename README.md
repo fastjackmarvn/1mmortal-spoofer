@@ -11,9 +11,9 @@ BattleEye:
 PUBG    
 E   
 Day  
-R6:Sieg
+R6:Sieg 
 Unturn 
-Arma 
+Arma
 Fortnite
 Easy Anti-cheat:
 
