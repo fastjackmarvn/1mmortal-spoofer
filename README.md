@@ -13,8 +13,8 @@ E
 Day  
 R6:Si    
 Unturn   
-Arm
-Fortn 
+Ar
+Fortn  
 Easy Anti-che
 
 Apex
