@@ -10,11 +10,11 @@
 PUBG       
 E     
 Day     
-R6:Si    
+R6:Si   
 Unturn   
 A  
 Fortn  
-Easy Anti-che 
+Easy Anti-che  
 Apex
 Rust
 SCUM
