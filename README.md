@@ -8,8 +8,8 @@
  
 ## Work in g       
 PUBG        
-E      
-Day  
+E     
+Day   
 R6:Si        
 Unturn     
 Ar
