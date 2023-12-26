@@ -8,9 +8,9 @@
 
 ## Work in g      
 PUBG       
-E       
+E      
 Da 
-R6:Si             
+R6:Si              
 Unturn   
 Fortn   
 Easy Anti-che   
