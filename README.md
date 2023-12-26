@@ -10,9 +10,9 @@
 Ba 
 PUBG         
 E      
-Day   
+Day  
 R6:Si    
-Unturn
+Unturn 
 Arm 
 Fortn
 Easy Anti-chea
