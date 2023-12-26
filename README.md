@@ -8,10 +8,10 @@
    
 ## Work in game
 Battle 
-PUBG    
+PUBG   
 E       
 Day  
-R6:Sieg   
+R6:Sieg    
 Unturn  
 Arm
 Fortnit
