@@ -8,8 +8,8 @@
 
 ## Work in g         
 PUBG        
-E   
-Da
+E  
+Da 
 R6:Si            
 Unturn   
 Fortn   
