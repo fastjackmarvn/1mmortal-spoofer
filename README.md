@@ -10,9 +10,9 @@
 Batt
 PUBG  
 E         
-Day  
+Day   
 R6:Sieg   
-Unturn    
+Unturn   
 Arm 
 Fortni 
 Easy Anti-chea
