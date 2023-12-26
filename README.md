@@ -12,8 +12,8 @@ E
 Day   
 R6:Si    
 Unturn     
-A   
-Fortn 
+A  
+Fortn  
 Easy Anti-che
 Apex
 Rust
