@@ -9,12 +9,12 @@
 ## Work in g     
 Ba    
 PUBG       
-E      
+E       
 Day    
 R6:Si  
 Unturn
 Arm 
-Fortni
+Fortn
 Easy Anti-chea
 
 Apex
