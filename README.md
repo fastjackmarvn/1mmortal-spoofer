@@ -8,13 +8,13 @@
    
 ## Work in g     
 Ba   
-PUBG      
+PUBG       
 E      
 Day    
 R6:Si  
 Unturn 
 Arm 
-Fortni 
+Fortni
 Easy Anti-chea
 
 Apex
