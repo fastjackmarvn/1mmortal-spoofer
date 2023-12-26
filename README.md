@@ -8,13 +8,13 @@
    
 ## Work in games -
 Battle
-PUBG    
+PUBG     
 E    
 Day 
 R6:Sieg   
 Unturn  
 Arma
-Fortnite
+Fortnit
 Easy Anti-cheat:
 
 Apex
