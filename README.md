@@ -9,9 +9,9 @@
 ## Work in games -
 BattleE
 PUBG     
-E   
+E    
 Day
-R6:Sieg    
+R6:Sieg   
 Unturn  
 Arma
 Fortnite
