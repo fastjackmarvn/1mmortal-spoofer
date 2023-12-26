@@ -8,10 +8,10 @@
   
 ## Work in g     
 Ba   
-PUBG       
+PUBG      
 E       
 Day    
-R6:Si 
+R6:Si  
 Unturn 
 Arm 
 Fortni 
