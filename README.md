@@ -10,8 +10,8 @@
 
 PUBG        
 E      
-Day  
-R6:Si       
+Day 
+R6:Si        
 Unturn     
 Ar
 Fortn 
