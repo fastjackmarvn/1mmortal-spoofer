@@ -9,10 +9,10 @@
 ## Work in g         
 PUBG        
 E   
-Da 
+Da  
 R6:Si             
 Unturn   
-Fortn   
+Fortn  
 Easy Anti-che   
 Ape
 Rust
