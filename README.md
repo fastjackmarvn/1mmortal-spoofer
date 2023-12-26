@@ -10,8 +10,8 @@
 Ba   
 PUBG    
 E         
-Day  
-R6:Si  
+Day 
+R6:Si   
 Unturn   
 Arm  
 Fortni  
