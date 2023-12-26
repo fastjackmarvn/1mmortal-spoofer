@@ -8,9 +8,9 @@
     
 ## Work in g  
 Bat
-PUBG     
+PUBG    
 E         
-Day   
+Day    
 R6:Sieg  
 Unturn  
 Arm 
