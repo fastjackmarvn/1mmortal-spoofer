@@ -9,9 +9,9 @@
 ## Work in g  
 Ba    
 PUBG      
-E       
+E      
 Day    
-R6:Si  
+R6:Si   
 Unturn  
 Arm 
 Fortni 
