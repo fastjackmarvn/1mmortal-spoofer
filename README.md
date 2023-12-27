@@ -8,12 +8,12 @@
 
 ## Work in g      
 PUBG      
-E         
+E          
 Da 
 R6:Si             
 Unturn  
 Fortn    
-Easy Anti-che  
+Easy Anti-che 
 Ape
 Rust
 SCUM
