@@ -10,9 +10,9 @@ PUBG
 E          
 Da    
 R6:Si              
-Unturn
+Unturn 
 Fortn    
-Easy Anti-che 
+Easy Anti-che
 Ape
 Rust
 SCUM
