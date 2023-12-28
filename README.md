@@ -8,11 +8,11 @@
 ## Work in g      
 PUBG     
 E         
-Da    
+Da   
 R6:Si           
 Unturn       
 Fortn   
-Easy Anti-ch
+Easy Anti-ch 
 Ape
 Rust
 SCUM
